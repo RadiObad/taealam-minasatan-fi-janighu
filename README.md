@@ -1,0 +1,1 @@
+# taealam-minasatan-fi-janighu
